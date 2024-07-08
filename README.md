@@ -2,7 +2,7 @@
 
 skins and stuff yay
 
-dm me on disc if you want like older skins or smth: Ryooyamada
+dm me on disc if you want like older skins or smth: Ryoyaamada
 -------------------------------------------------
 
 # [Rafis (onimai edit)](https://ryoyamadaskins.s-ul.eu/mUn5pYxM)
