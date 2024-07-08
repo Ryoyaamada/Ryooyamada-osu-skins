@@ -1,6 +1,4 @@
-# Ryooyamada-s-osu-skins 
-
-skins and stuff yay
+# skins and stuff yay
 
 dm me on disc if you want like older skins or smth: Ryoyaamada
 -------------------------------------------------
