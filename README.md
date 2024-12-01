@@ -2,6 +2,9 @@
 
 dm me on disc if you want like older skins or smth: Ryoyaamada
 -------------------------------------------------
+# [Breakcore tekk edit](https://ryoyamadaskins.s-ul.eu/ipL0130k)
+![](https://ryoyamadaskins.s-ul.eu/GJXNPaVe)
+
 # [Another Rafis Onimai Edit](https://ryoyamadaskins.s-ul.eu/nTkROOus)
 ![](https://ryoyamadaskins.s-ul.eu/tx0vIlsV)
 
