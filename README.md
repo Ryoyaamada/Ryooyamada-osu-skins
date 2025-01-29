@@ -2,6 +2,12 @@
 
 dm me on disc if you want like older skins or smth: Ryoyaamada
 -------------------------------------------------
+# [aaaaaaaa](https://ryoyamadaskins.s-ul.eu/eqq5YhCT)
+![](https://ryoyamadaskins.s-ul.eu/puO8o5ED)
+
+# [Boop Kiwi](https://ryoyamadaskins.s-ul.eu/Nw5eyilq)
+![](https://ryoyamadaskins.s-ul.eu/CrcF908u)
+
 # [Breakcore tekk edit](https://ryoyamadaskins.s-ul.eu/ipL0130k)
 ![](https://ryoyamadaskins.s-ul.eu/GJXNPaVe)
 
