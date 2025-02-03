@@ -1,6 +1,6 @@
 # skins and stuff yay
 
-dm me on disc if you want like older skins or smth: Ryoyaamada
+dm me on disc if you want like a skin thats not in here or smth: Ryoyaamada
 -------------------------------------------------
 # [Rekty Utena](https://ryoyamadaskins.s-ul.eu/E3XfzENL)
 ![](https://ryoyamadaskins.s-ul.eu/MIyH7mrR)
