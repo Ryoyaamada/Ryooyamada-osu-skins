@@ -2,6 +2,9 @@
 
 ### dm me on disc if you want like a skin thats not in here or smth: Ryoyaamada
 -------------------------------------------------
+# [Zadymiarz Shiroko Terror edit](https://ryoyamadaskins.s-ul.eu/MwOwvE78)
+![](https://ryoyamadaskins.s-ul.eu/YDaty3YR)
+
 # [Boop utena](https://ryoyamadaskins.s-ul.eu/YcE5UIxL)
 ![](https://ryoyamadaskins.s-ul.eu/lwfxXQmv)
 
