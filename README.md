@@ -2,7 +2,7 @@
 
 ### dm me on disc if you want like a skin thats not in here or smth: Ryoyaamada
 -------------------------------------------------
-# [Rafis Reisa edit thing](https://ryoyamadaskins.s-ul.eu/xbi5mDAN)
+# [Rafis Reisa edit thing](https://ryoyamadaskins.s-ul.eu/xbi5mDAN) | [triplestack ver](https://ryoyamadaskins.s-ul.eu/pgzNoNHR)
 ![](https://ryoyamadaskins.s-ul.eu/ZS22FoOE)
 
 # [rekty ibuki edit thing](https://ryoyamadaskins.s-ul.eu/C1O4OtLb)
