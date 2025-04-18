@@ -6,7 +6,7 @@
 # [Rafis Reisa edit thing](https://ryoyamadaskins.s-ul.eu/xbi5mDAN) | [triplestack ver](https://ryoyamadaskins.s-ul.eu/pgzNoNHR)
 ![](https://ryoyamadaskins.s-ul.eu/ZS22FoOE)
 
-# [rekty ibuki edit thing](https://ryoyamadaskins.s-ul.eu/C1O4OtLb)
+# [ibuki edit thing](https://ryoyamadaskins.s-ul.eu/C1O4OtLb)
 ![](https://ryoyamadaskins.s-ul.eu/r7QTi7RA)
 
 # [Zadymiarz Shiroko Terror edit](https://ryoyamadaskins.s-ul.eu/MwOwvE78)
