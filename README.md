@@ -3,6 +3,9 @@
 ### dm me on disc if you want like a skin thats not in here or smth: Ryoyaamada
 ### if a skin is not on here its prob wip or i just havent put it in here yet
 -------------------------------------------------
+# [Seia Aristia mix](https://ryoyamadaskins.s-ul.eu/VJ7bt83i)
+![](https://ryoyamadaskins.s-ul.eu/f0ommCqQ)
+
 # [Hina edit](https://ryoyamadaskins.s-ul.eu/8Jc6fEur)
 ![](https://ryoyamadaskins.s-ul.eu/BwNI6lOR)
 
