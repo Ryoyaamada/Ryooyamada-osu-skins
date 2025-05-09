@@ -9,8 +9,8 @@
 # [Hina edit](https://ryoyamadaskins.s-ul.eu/8Jc6fEur)
 ![](https://ryoyamadaskins.s-ul.eu/BwNI6lOR)
 
-# [Rafis Reisa edit thing](https://ryoyamadaskins.s-ul.eu/xbi5mDAN) | [triplestack ver](https://ryoyamadaskins.s-ul.eu/pgzNoNHR) | [hex cursor ver](https://ryoyamadaskins.s-ul.eu/jCWWEQpY)
-![](https://ryoyamadaskins.s-ul.eu/ZS22FoOE)
+# [Rafis Reisa edit thing](https://ryoyamadaskins.s-ul.eu/LUcsi2uI) | [Extras](https://ryoyamadaskins.s-ul.eu/fxpq2sUp)
+![](https://ryoyamadaskins.s-ul.eu/zvVmLPAW)
 
 # [ibuki edit thing](https://ryoyamadaskins.s-ul.eu/C1O4OtLb)
 ![](https://ryoyamadaskins.s-ul.eu/r7QTi7RA)
