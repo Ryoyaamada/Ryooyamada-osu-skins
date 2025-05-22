@@ -3,7 +3,7 @@
 ### dm me on disc if you want like a skin thats not in here or smth: Ryoyaamada
 ### if a skin is not on here its prob wip or i just havent put it in here yet
 -------------------------------------------------
-# [Sanggu koharu dt skin i found](https://ryoyamadaskins.s-ul.eu/u4lf2TZ1)
+# [Sanggu koharu dt skin i found and slightly edited](https://ryoyamadaskins.s-ul.eu/u4lf2TZ1)
 ![](https://ryoyamadaskins.s-ul.eu/SS2hMqA7)
 
 # [Seia Aristia mix](https://ryoyamadaskins.s-ul.eu/VJ7bt83i)
