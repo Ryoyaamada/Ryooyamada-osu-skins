@@ -3,6 +3,12 @@
 ### dm me on disc if you want like a skin thats not in here or smth: Ryoyaamada
 ### if a skin is not on here its prob wip or i just havent put it in here yet
 -------------------------------------------------
+# [Seiamonko](https://ryoyamadaskins.s-ul.eu/NXHhIo47)
+![](https://ryoyamadaskins.s-ul.eu/9nOlXCIL)
+
+# [Kurokomonko](https://ryoyamadaskins.s-ul.eu/21OCTpMD)
+![](https://ryoyamadaskins.s-ul.eu/MF7ApDSk)
+
 # [Yuuka edit](https://ryoyamadaskins.s-ul.eu/nlQpoR07)
 ![](https://ryoyamadaskins.s-ul.eu/WwlM4DKM)
 
