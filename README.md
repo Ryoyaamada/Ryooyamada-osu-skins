@@ -3,7 +3,7 @@
 ### dm me on disc if you want like a skin thats not in here or smth: Ryoyaamada
 ### if a skin is not on here its prob wip or i just havent put it in here yet
 -------------------------------------------------
-# [Aristia SZ instafade w/seia scorescreen](https://ryoyamadaskins.s-ul.eu/ajxCMr8q)
+# [Aristia SZ instafade w/seia scorescreen](https://ryoyamadaskins.s-ul.eu/ajxCMr8q) (shoutout ieth for original skin)
 ![](https://ryoyamadaskins.s-ul.eu/2k1gv8xn)
 
 # [Seiamonko](https://ryoyamadaskins.s-ul.eu/NXHhIo47)
