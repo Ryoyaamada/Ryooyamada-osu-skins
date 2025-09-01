@@ -3,6 +3,9 @@
 ### dm me on disc if you want like a skin thats not in here or smth: Ryoyaamada
 ### if a skin is not on here its prob wip or i just havent put it in here yet
 -------------------------------------------------
+# [Zadymiarz onymki](https://ryoyamadaskins.s-ul.eu/7mf3UEcp)
+![](https://ryoyamadaskins.s-ul.eu/0UITodhU)
+
 # [Aristia SZ instafade w/seia scorescreen](https://ryoyamadaskins.s-ul.eu/ajxCMr8q) (shoutout ieth for original skin)
 ![](https://ryoyamadaskins.s-ul.eu/2k1gv8xn)
 
