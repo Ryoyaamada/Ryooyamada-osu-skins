@@ -3,6 +3,12 @@
 ### dm me on disc if you want like a skin thats not in here or smth: Ryoyaamada
 ### if a skin is not on here its prob wip or i just havent put it in here yet
 -------------------------------------------------
+# [Hosh mix](https://ryoyamadaskins.s-ul.eu/auC5doS1)
+![](https://osu.ppy.sh/ss/19753245/5801)
+
+# [Rafis Reisa](https://ryoyamadaskins.s-ul.eu/i7JQA9dM)
+![](https://osu.ppy.sh/ss/19753249/4c61)
+
 # [Zadymiarz onymki](https://ryoyamadaskins.s-ul.eu/7mf3UEcp)
 ![](https://ryoyamadaskins.s-ul.eu/0UITodhU)
 
@@ -29,9 +35,6 @@
 
 # [Hina edit](https://ryoyamadaskins.s-ul.eu/8Jc6fEur)
 ![](https://ryoyamadaskins.s-ul.eu/BwNI6lOR)
-
-# [Rafis Reisa edit thing](https://ryoyamadaskins.s-ul.eu/LUcsi2uI) | [Extras](https://ryoyamadaskins.s-ul.eu/fxpq2sUp)
-![](https://ryoyamadaskins.s-ul.eu/zvVmLPAW)
 
 # [ibuki edit thing](https://ryoyamadaskins.s-ul.eu/C1O4OtLb)
 ![](https://ryoyamadaskins.s-ul.eu/r7QTi7RA)
