@@ -3,6 +3,10 @@
 ### dm me on disc if you want like a skin thats not in here or smth: Ryoyaamada
 ### if a skin is not on here its prob wip or i just havent put it in here yet
 -------------------------------------------------
+
+# [Idol mari (aristia edit)](https://ryoyamadaskins.s-ul.eu/Obmr7IX3)
+![](https://osu.ppy.sh/ss/19772358/6ccf)
+
 # [Hosh mix](https://ryoyamadaskins.s-ul.eu/auC5doS1)
 ![](https://osu.ppy.sh/ss/19753245/5801)
 
