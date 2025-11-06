@@ -12,7 +12,7 @@
 # [Hosh mix](https://ryoyamadaskins.s-ul.eu/auC5doS1)
 ![](https://osu.ppy.sh/ss/19753245/5801)
 
-# [Rafis Reisa](https://ryoyamadaskins.s-ul.eu/i7JQA9dM) | [non reisa ver](https://ryoyamadaskins.s-ul.eu/KT147t5n)
+# [Rafis Reisa](https://ryoyamadaskins.s-ul.eu/i7JQA9dM) | [non reisa ver](https://ryoyamadaskins.s-ul.eu/VSl6HF7K)
 ![](https://osu.ppy.sh/ss/19753249/4c61)
 
 # [Zadymiarz onymki](https://ryoyamadaskins.s-ul.eu/7mf3UEcp)
