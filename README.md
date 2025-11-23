@@ -1,6 +1,6 @@
 # skins and stuff yay
 
-### dm me on disc if you want like a skin thats not in here or smth: Ryoyaamada
+### dm me on disc if you want like a skin thats not in here or smth: @Ryoyaamada
 ### if a skin is not on here its prob wip or i just havent put it in here yet
 -------------------------------------------------
 # [iroha skins](https://drive.google.com/drive/folders/17rWVXn8GJ6mdFKl8mMtWbHvHP4zCyLDt?usp=sharing)
