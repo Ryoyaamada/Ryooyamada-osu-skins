@@ -3,8 +3,6 @@
 ### dm me on disc if you want like a skin thats not in here or smth: @Ryoyaamada
 ### if a skin is not on here its prob wip or i just havent put it in here yet
 -------------------------------------------------
-
-
 # [serika dt skin](https://ryoyamadaskins.s-ul.eu/JxUkxtZy)
 ![](https://osu.ppy.sh/ss/19819044/a628)
 
