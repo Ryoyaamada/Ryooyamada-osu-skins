@@ -3,8 +3,25 @@
 ### dm me on disc if you want like a skin thats not in here or smth: @Ryoyaamada
 ### if a skin is not on here its prob wip or i just havent put it in here yet
 -------------------------------------------------
+
+
+# [serika dt skin](https://ryoyamadaskins.s-ul.eu/JxUkxtZy)
+![](https://osu.ppy.sh/ss/19819044/a628)
+
+# [serika selyu edit](https://ryoyamadaskins.s-ul.eu/YYEHJdIb)
+![](https://ryoyamadaskins.s-ul.eu/wP3OkyZp)
+
+# [serika ez skin](https://ryoyamadaskins.s-ul.eu/VGYwtXVm)
+![](https://ryoyamadaskins.s-ul.eu/dz4vyhhQ)
+
+# [serika hd skin](https://ryoyamadaskins.s-ul.eu/gipWJ7Tj)
+![](https://osu.ppy.sh/ss/19819045/1aa6)
+
+# [serika nm skin](https://ryoyamadaskins.s-ul.eu/88Z0OG28)
+![](https://osu.ppy.sh/ss/19819046/64c1)
+
 # [iroha skins](https://drive.google.com/drive/folders/17rWVXn8GJ6mdFKl8mMtWbHvHP4zCyLDt?usp=sharing)
-  ill add screenshots later
+ ### Screenshots in the drive
 
 # [Idol mari (aristia edit)](https://ryoyamadaskins.s-ul.eu/Obmr7IX3)
 ![](https://osu.ppy.sh/ss/19772358/6ccf)
