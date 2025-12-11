@@ -27,7 +27,7 @@
 # [Hosh mix](https://ryoyamadaskins.s-ul.eu/auC5doS1)
 ![](https://osu.ppy.sh/ss/19753245/5801)
 
-# [Rafis Reisa](https://ryoyamadaskins.s-ul.eu/i7JQA9dM) | [non reisa ver](https://ryoyamadaskins.s-ul.eu/VSl6HF7K)
+# [Rafis Reisa](https://ryoyamadaskins.s-ul.eu/i7JQA9dM) | [no reisa sfx ver](https://ryoyamadaskins.s-ul.eu/VSl6HF7K)
 ![](https://osu.ppy.sh/ss/19753249/4c61)
 
 # [Zadymiarz onymki](https://ryoyamadaskins.s-ul.eu/7mf3UEcp)
@@ -57,20 +57,5 @@
 # [Hina edit](https://ryoyamadaskins.s-ul.eu/8Jc6fEur)
 ![](https://ryoyamadaskins.s-ul.eu/BwNI6lOR)
 
-# [ibuki edit thing](https://ryoyamadaskins.s-ul.eu/C1O4OtLb)
-![](https://ryoyamadaskins.s-ul.eu/r7QTi7RA)
-
 # [Zadymiarz Shiroko Terror edit](https://ryoyamadaskins.s-ul.eu/MwOwvE78)
 ![](https://ryoyamadaskins.s-ul.eu/YDaty3YR)
-
-# [Boop utena](https://ryoyamadaskins.s-ul.eu/YcE5UIxL)
-![](https://ryoyamadaskins.s-ul.eu/lwfxXQmv)
-
-# [Rekty Utena](https://ryoyamadaskins.s-ul.eu/E3XfzENL)
-![](https://ryoyamadaskins.s-ul.eu/MIyH7mrR)
-
-# [aaaaaaaa](https://ryoyamadaskins.s-ul.eu/eqq5YhCT)
-![](https://ryoyamadaskins.s-ul.eu/puO8o5ED)
-
-# [Boop Kiwi](https://ryoyamadaskins.s-ul.eu/Nw5eyilq)
-![](https://ryoyamadaskins.s-ul.eu/CrcF908u)
