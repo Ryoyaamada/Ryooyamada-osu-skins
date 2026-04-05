@@ -3,6 +3,12 @@
 ### if you want a skin thats not in here dm me on discord: @Ryoyaamada
 ### if a skin is not on here its prob wip or i just havent put it in here yet
 -------------------------------------------------
+# [Black Souls Rektyedit](https://ryoyamadaskins.s-ul.eu/HliFam0X)
+![](https://osu.ppy.sh/ss/19920723/1f3a)
+
+# [Black Souls DT](https://ryoyamadaskins.s-ul.eu/7AM8zraU)
+![](https://osu.ppy.sh/ss/19920722/8395)
+
 # [keizerino](https://ryoyamadaskins.s-ul.eu/VBDRLD8u)
 ![](https://ryoyamadaskins.s-ul.eu/YjiL1Ss1)
 
