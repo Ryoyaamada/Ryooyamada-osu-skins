@@ -1,6 +1,6 @@
 # skins and stuff yay
 
-### dm me on disc if you want like a skin thats not in here or smth: @Ryoyaamada
+### if you want a skin thats not in here dm me on discord: @Ryoyaamada
 ### if a skin is not on here its prob wip or i just havent put it in here yet
 -------------------------------------------------
 # [keizerino](https://ryoyamadaskins.s-ul.eu/VBDRLD8u)
