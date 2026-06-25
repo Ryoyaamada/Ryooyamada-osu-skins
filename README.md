@@ -15,10 +15,10 @@
 # [kei rafis](https://ryoyamadaskins.s-ul.eu/Drg0u9kI) | [kei rafis triplestack](https://ryoyamadaskins.s-ul.eu/NTpjYarU)
 ![](https://ryoyamadaskins.s-ul.eu/Jf8O0ldn)
 
-# [kei vaxei](https://ryoyamadaskins.s-ul.eu/cENoD5Qr)
+# [kei vaxei](https://ryoyamadaskins.s-ul.eu/jHZGT5bv)
 ![](https://ryoyamadaskins.s-ul.eu/oyRKTrBu)
 
-# [serika aristia](https://ryoyamadaskins.s-ul.eu/jHZGT5bv)
+# [serika aristia](https://ryoyamadaskins.s-ul.eu/cENoD5Qr)
 ![](https://osu.ppy.sh/ss/19844552/0630)
 
 # [serika dt skin](https://ryoyamadaskins.s-ul.eu/JxUkxtZy)
